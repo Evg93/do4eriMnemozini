@@ -1,1 +1,1 @@
-# do4eriMnemozini
+# cherek-mag
